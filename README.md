@@ -3,3 +3,9 @@
 try to copy Granny by DVloper
 olkhnjhtnrtohnorihnoerhnrtnernhinerthnerth
 bfbf
+rtikhjorehjioerjhmerjph
+hrthjoerihjiorehnjiertnhier
+mhkirnhonerlhneolhjr
+rhikrnohnerhnoerhnirt
+hjrtnohrnhiorehierohne
+hirtohenrihnerihii
